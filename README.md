@@ -20,4 +20,6 @@
 
 i act indifferently or coldly towards those i do not know and those who i have no interest in knowing. if you are offended by my way of speech i will simply ignore you.
 
+i may be socially awkward at times and know how to respond to you. if this happens, i will simply remain quiet whilst you continue to talk.
+
 you can leave me a message   <a href="https://detroitbecomehuman.atabook.org/"><u>here.</u></a> &nbsp;&nbsp;
